@@ -1,0 +1,1 @@
+The ingredients that are generally used are egg whites, icing sugar, granulated sugar, almond powder, food coloring, buttercream, or clotted cream, ganache, or jam.
